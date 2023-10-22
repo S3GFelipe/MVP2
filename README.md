@@ -7,4 +7,4 @@ Link do Figma:
 https://www.figma.com/file/omE02vCzL92ZLJ81AoXzTW/EVolvo?type=design&node-id=0%3A1&mode=design&t=VZTxAPRT1znWurC5-1
 
 Link do vídeo:
-https://youtu.be/h9qTSZXqwbE
+https://youtu.be/9zcoxBw8NJg
